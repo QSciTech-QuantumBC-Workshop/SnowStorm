@@ -1,1 +1,1 @@
-# Team 12 - Snowstorm
+# Team 12 - SnowStorm
